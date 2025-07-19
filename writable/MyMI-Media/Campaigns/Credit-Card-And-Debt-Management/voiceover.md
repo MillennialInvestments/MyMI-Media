@@ -1,0 +1,1 @@
+"It's time to tackle credit card debt head on. Open the MyMI Wallet app and discover tools built for your success. With a clear budget and smart debt calculator, you'll find the confidence to build better habits and reach #DebtFree2025. Let MyMI Wallet guide you to a brighter financial future."

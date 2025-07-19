@@ -1,0 +1,1 @@
+"Welcome to the next level of trading discipline. MyMI Wallet's Trade Tracker logs every move and sends real-time alerts right when you need them. Keep your strategy sharp and your portfolio organized." 
