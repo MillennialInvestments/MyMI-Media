@@ -1,0 +1,1 @@
+"Income investors want reliable yields. Our screen found only six companies with the right mix of stability and growth. Add them to your MyMI Wallet watchlist and follow their performance. Explore six quality dividend stocks that passed our screening process." 

@@ -1,0 +1,1 @@
+"Energy policy is shifting. From renewables to traditional power sources, prices are in flux. Track how these changes influence inflation, and position your investments wisely with MyMI Wallet. Understand how energy costs could impact inflation and your investment strategy in 2025."

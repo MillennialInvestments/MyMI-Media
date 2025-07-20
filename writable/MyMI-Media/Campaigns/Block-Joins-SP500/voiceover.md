@@ -1,0 +1,1 @@
+"Block's move into the S&P 500 could signal increased demand and volatility. Follow the trend in MyMI Wallet and determine if the momentum aligns with your trading strategy. See what the S&P 500 inclusion means for stock momentum and long-term traders." 
