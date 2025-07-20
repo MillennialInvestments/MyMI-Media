@@ -8,3 +8,5 @@ Successful investing starts with focusing on the right assets. MyMI Wallet lets 
 - Review and adjust your lists regularly.
 
 Take control of your portfolio by tracking exactly what matters to you.
+
+Build your personal watchlists and track your assets smarter with MyMI Wallet.

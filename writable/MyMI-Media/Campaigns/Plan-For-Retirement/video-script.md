@@ -8,4 +8,6 @@
 
 **Scene 3:** Split screen: free vs premium feature highlights.
 
-**Narrator:** "Whether you're saving a little or a lot, MyMI Wallet guides your path to a secure future." 
+**Narrator:** "Whether you're saving a little or a lot, MyMI Wallet guides your path to a secure future."
+
+**Narrator:** "Prepare for retirement with confidence—explore both free and premium planning tools in MyMI Wallet."

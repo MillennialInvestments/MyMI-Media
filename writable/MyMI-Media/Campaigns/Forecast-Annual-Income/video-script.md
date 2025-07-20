@@ -8,4 +8,6 @@
 
 **Scene 3:** Discount graphic appears on screen.
 
-**Narrator:** "Upgrade today for 60% off and start planning with clarity." 
+**Narrator:** "Upgrade today for 60% off and start planning with clarity."
+
+**Narrator:** "Forecast your financial year and unlock clarity with MyMI Wallet's premium tools—60% off for a limited time."

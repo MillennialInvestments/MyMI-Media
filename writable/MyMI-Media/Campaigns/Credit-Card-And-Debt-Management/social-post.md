@@ -1,1 +1,1 @@
-Take control of your finances in 2025! 💳 Our free budgeting tool and debt calculator in #MyMIWallet make it easy to crush debt and build better habits. Start your journey to #DebtFree2025 today. #BudgetBetter
+Take control of your finances in 2025! 💳 Use MyMI Wallet's free budgeting tool and debt calculator to start your debt-free journey today. #DebtFree2025 #BudgetBetter #MyMIWallet

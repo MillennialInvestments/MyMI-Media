@@ -8,4 +8,6 @@
 
 **Scene 3:** Trader making a quick decision based on an alert.
 
-**Narrator:** "Gain the confidence to execute smarter trades—only with MyMI Wallet." 
+**Narrator:** "Gain the confidence to execute smarter trades—only with MyMI Wallet."
+
+**Narrator:** "Use MyMI Wallet's Trade Tracker and real-time alerts to make smarter trades every day."

@@ -8,3 +8,5 @@ Active trading requires discipline and detailed record keeping. The MyMI Trade T
 - Exportable reports for tax season.
 
 With everything in one place, you can focus on making profitable decisions.
+
+Use MyMI Wallet's Trade Tracker and real-time alerts to make smarter trades every day.

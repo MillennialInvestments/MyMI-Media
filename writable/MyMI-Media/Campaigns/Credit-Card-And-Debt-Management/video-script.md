@@ -9,3 +9,5 @@
 **Scene 3:** User celebrating as debt decreases on the screen.
 
 **Narrator:** "Join the #DebtFree2025 movement and regain control today!"
+
+**Narrator:** "Use MyMI Wallet's free budgeting tool and debt calculator to start your debt-free journey today."

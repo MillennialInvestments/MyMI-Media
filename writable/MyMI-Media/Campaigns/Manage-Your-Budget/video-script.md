@@ -8,8 +8,8 @@
 
 **Scene 3:** Calendar view with alerts popping up.
 
-**Narrator:** "Stay on track with friendly reminders and celebrate every milestone." 
+**Narrator:** "Stay on track with friendly reminders and celebrate every milestone."
 
 **Scene 4:** Call to action screen.
 
-**Narrator:** "Sign up for free today and join thousands planning for success!" 
+**Narrator:** "Sign up for free today and join thousands planning for success! Start fresh with your budget in 2025 using MyMI Wallet's intuitive tools."

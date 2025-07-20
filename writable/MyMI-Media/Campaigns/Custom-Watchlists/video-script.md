@@ -8,4 +8,6 @@
 
 **Scene 3:** Alerts popping up as prices move.
 
-**Narrator:** "Stay focused, act quickly, and achieve your #WatchlistGoals." 
+**Narrator:** "Stay focused, act quickly, and achieve your #WatchlistGoals."
+
+**Narrator:** "Build your personal watchlists and track your assets smarter with MyMI Wallet."

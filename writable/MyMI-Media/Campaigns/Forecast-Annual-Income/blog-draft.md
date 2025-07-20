@@ -8,3 +8,5 @@ Thinking beyond the monthly budget can reveal new opportunities for growth. With
 - Leverage data to make confident investment decisions.
 
 Grab the tool today at 60% off and chart your path to prosperity.
+
+Forecast your financial year and unlock clarity with MyMI Wallet's premium tools—60% off for a limited time.

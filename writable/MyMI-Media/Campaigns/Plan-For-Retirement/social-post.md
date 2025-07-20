@@ -1,1 +1,1 @@
-Secure your future with MyMI Wallet's retirement planning tools. From free calculators to premium investment tracking, we've got everything you need to build a solid nest egg. #RetirementReady #PlanYourFuture #MyMIWallet
+Secure your future with MyMI Wallet's retirement planning tools. From free calculators to premium investment tracking, we've got everything you need to build a solid nest egg. Prepare for retirement with confidence—explore both free and premium planning tools in MyMI Wallet. #RetirementReady #PlanYourFuture #MyMIWallet

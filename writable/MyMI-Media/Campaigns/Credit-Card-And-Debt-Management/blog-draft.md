@@ -7,4 +7,4 @@ Credit cards are convenient, but they can also lead to overwhelming balances. Wi
 2. Use the debt calculator to set payoff targets.
 3. Schedule reminders to stay motivated.
 
-Start your journey to #DebtFree2025 and take back control today.
+Use MyMI Wallet's free budgeting tool and debt calculator to start your debt-free journey today.
