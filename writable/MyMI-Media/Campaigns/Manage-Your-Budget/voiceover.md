@@ -1,0 +1,1 @@
+"Take a deep breath. It's time to get organized with your spending. MyMI Wallet will help you set up your first budget and keep you focused on what matters most. Join the movement to make 2025 your best financial year yet. Start fresh with your budget in 2025 using MyMI Wallet's intuitive tools."

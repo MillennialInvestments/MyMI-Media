@@ -1,0 +1,1 @@
+"Corporations say consumers are strong, but many feel their budgets stretching thin. Compare your spending against national trends with MyMI Wallet and find out if you're truly keeping up. Is corporate optimism justified? Dive into the data and decide for yourself." 

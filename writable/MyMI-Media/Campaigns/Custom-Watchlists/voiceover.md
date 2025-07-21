@@ -1,0 +1,1 @@
+"Imagine a dashboard designed just for you. With MyMI Wallet's custom watchlists, track your favorite stocks, cryptos, and more—all in one place. Get alerts when the time is right and execute your strategy with confidence. Build your personal watchlists and track your assets smarter with MyMI Wallet."

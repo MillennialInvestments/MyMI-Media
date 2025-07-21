@@ -1,0 +1,11 @@
+Intro (0-5s): Stock tickers roll; Block logo appears.
+Voiceover: "Block is entering the S&P 500, putting it on the radar of major index funds." 
+
+Momentum (5-25s): Historical charts of S&P 500 additions.
+Voiceover: "Index fund buying often sparks short-term momentum." 
+
+Tracking (25-45s): MyMI Wallet screen with Block's volume spikes.
+Voiceover: "Track volatility and decide if this is your moment to act." 
+
+CTA (45-60s): MyMI Wallet sign-up with final tagline.
+Voiceover: "See what the S&P 500 inclusion means for stock momentum and long-term traders." 
