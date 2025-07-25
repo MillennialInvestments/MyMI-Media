@@ -1,0 +1,1 @@
+"Shreveport is full of talent ready to shine. With MyMI Wallet's Funding Machine, turning your idea into a funded startup has never been easier. Tokenize your business, connect with local investors, and grow alongside the community you love. Apply to the Shreveport Startup Launchpad and let's build a stronger Northwest Louisiana together."

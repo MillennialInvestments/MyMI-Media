@@ -1,0 +1,1 @@
+Ready to take your Shreveport startup to the next level? 🚀 The #MyMIFundingMachine helps youth and minority entrepreneurs raise community capital legally and transparently. Join the Shreveport Startup Launchpad today and turn local support into real investment. #Shreveport #StartupLaunchpad #RegCF
